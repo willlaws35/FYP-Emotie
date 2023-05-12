@@ -10,4 +10,6 @@ Chris Hawkins, as my Second assessor of the project.
 Luke Emery, for hosting an incredible module through the duration of the year, allowing a break from the madness.
 My only hope is, he gets a full night of sleep sometime soon.
 
+Lipps, Inc's 1979 masterpiece of "Funky Town", for simply existing.
+
 And A note to My Davici xyz mini w, which gave its parts to the project thanks due to proprietary software ruining perfectly nice things, you will not be forgotten.
