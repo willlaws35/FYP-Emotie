@@ -3,6 +3,8 @@ To my family and everyone at home for dealing with my obsessive ramblings of mea
 
 The Sleepless Robotics Crew, for suggesting additons to the robot I do not need, but made for a damn cool extra.
 
+Molly Sale, for incredible voice acting work for the project.
+
 Benhur Bakhtiari Bastaki, as my primary assessor and supervisor through the duration of the project.
 
 Chris Hawkins, as my Second assessor of the project.
